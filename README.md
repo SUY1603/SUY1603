@@ -16,7 +16,7 @@ Pre-Final Year Student @ BIT Mesra | Gen AI | Deep Learning with Pytorch
 
 - I’m looking to collaborate on **multimodal integration and intelligence system**
 
-- How to reach me **sjguddu1603@gmail.com**
+- How to reach me **suyashjadhav1603@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
